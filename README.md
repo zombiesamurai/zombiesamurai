@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zombiesamurai
 - 👀 I’m interested in ... coding an app creation
-- 🌱 I’m currently learning ... code mainly on python, just started
+- 🌱 I’m currently learning ... code just started, so im mainly looking for sum one to help me learn code
 - 💞️ I’m looking to collaborate on ... anything rlly as long asI gain some sort of experience
-- 📫 How to reach me ... discord is theseiki#5591 an my socials snap an insta Dyln_kaiser
+- 📫 How to reach me ... discord is theseiki#5591
